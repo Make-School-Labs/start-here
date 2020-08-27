@@ -1,0 +1,1 @@
+You have entered a long dark passage. You hear water lapping against stone further done. 
